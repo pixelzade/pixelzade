@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @pixelzade
+- 👀 I’m interested in AI
